@@ -8,3 +8,4 @@ https://open.spotify.com/user/spotify/playlist/37i9dQZF1DZ06evO4hKra8?si=a6FP4mY
 https://open.spotify.com/user/stingme67/playlist/3syLTk0oBcwh1KhaaxlKnW?si=ZfO4RrhxTXeMb4r7pzM54Q
 https://open.spotify.com/user/stingme67/playlist/7kfwo4GgM1pdPccgsBDNM9?si=ey4YL420ScW0WId0WfMXdg
 https://open.spotify.com/user/stingme67/playlist/3XPbaY2v4pbObfG9JEXCgp?si=-5_OapAgRpimCEN8UFMyaA
+https://open.spotify.com/user/stingme67/playlist/65PtFgUqQNBaOPlt4KIrkF?si=onyQSdiERSG-8fJAVNcprA
